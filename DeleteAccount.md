@@ -1,1 +1,1 @@
-To delete you account and anything you share with the community, you may do so in the settings page of the app, where you can either delete your account, delete your account plus anything you've shared or published - you can choose something specific or choose a delete all option. 
+Easy Dine App: To delete you account and anything you share with the community, you may do so in the settings page of the app, where you can either delete your account, delete your account plus anything you've shared or published - you can choose something specific or choose a delete all option. 
